@@ -1,5 +1,5 @@
 
-Hey 👋 - Im Seyon! Welcome to my profile!
+Yo Im Seyon - DM me if you wanna build something cool 
 
 
 ## Socials:
