@@ -1,7 +1,4 @@
 
-Yo Im Seyon - DM me if you wanna build something cool 
-
-
 ## Socials:
 [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:seyon.direct@gmail.com) 
 
