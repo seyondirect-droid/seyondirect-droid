@@ -1,4 +1,4 @@
-# 💫 About Me:
+
 Hey 👋 - Im Seyon! Welcome to my profile!
 
 
